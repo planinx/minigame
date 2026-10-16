@@ -1,2 +1,2 @@
 # FOR ONLY MY HUZZ💥
-https://planinx.github.io/
+https://planinx.github.io/minigame
